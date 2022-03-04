@@ -1,1 +1,6 @@
 site_name: Vuka Sandbox
+extra_css: 
+  - css/w3.css
+theme:
+  name: journal
+  
