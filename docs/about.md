@@ -1,26 +1,16 @@
 ## about us
 
-The Zulu word speaks of intense awakening. It calls the listener to wake up from sleep and see what is actually going on. Wakkerskrik!
+to be done
 
-It is also a call to rise to the occasion and meet the challenges of the day.
-
-In Swahili the word encourages the listener to voyage into the imaginative future. It invites us not to stay where we are but to move on to the new.
-
-Volatility, Uncertainty , Kaos and Ambiguity are not be feared. They should awaken us to the reality of life and inspire us to live creatively and resiliently.
-
-
-### From DR Kat
+### precis from DR Kat
 
 where can  VUKA SA can make the most difference.
  
 1. information overload and splintering - everywhere. 
 2. Everyone wants to be heard. 
 3. people are frustrated and feel helpless.  
-
 4. people do not read. lots of duplication.
-
-5. no ONE place that reports ALL that is happening, in lay peoples terms, after verifying the correct story on a regular basis.(side note from chris - this is impossible and the internet was invented to fix this problem. strangely difficult. see point 1)
-
+5. no ONE place that reports ALL that is happening, in lay peoples terms, after verifying the correct story on a regular basis.(side note from chris - this is impossible and the internet was invented to fix this problem. strangely difficult. see point 1 and 4)
 6.  no CENTRAL HUB where people can ask a question and be directed to the right place for help and/or clarity. 
 
 make a difference - change the narrative -- TOGETHER 
